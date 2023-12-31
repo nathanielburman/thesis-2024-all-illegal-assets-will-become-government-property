@@ -1,7 +1,7 @@
 # thesis-2024-all-illegal-assets-will-become-government-property
 2024 Democrats will force illegal migrants to hand over all assets, houses, cars and bank accounts and businesses will all become government assets.
 
-They have armed the IRS and will use deadly force to recover all stollen illegal assets to pay for the newly formed government which will apear on the lest coast first. This has allready happened and I will explain why they havent celebrated their newly formed governments yet.
+They have armed the IRS and will use deadly force to recover all stollen illegal assets to pay for the newly formed government which will appear on the lest coast first. This has allready happened and I will explain why they havent celebrated their newly formed governments yet.
 
 Two sides in America will act differently natural?y:
 
